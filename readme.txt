@@ -1,1 +1,1 @@
-Андрусів Марія 1
+Maria Andrusiv 1
